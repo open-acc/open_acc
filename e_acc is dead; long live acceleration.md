@@ -1,0 +1,3 @@
+At one point, e/acc meant something. It offered a narrative that really didn't exist anywhere. Not in tech journalism. Not in Silicon Valley. Not in America. In a world of doomers, decels, and lock-downs it offered something that was lacking in the world...it offered agency.
+
+e/acc was counter-culture. It was punk rock. It was leaderless by it's very nature and also by proclamation. It was a filter. It was a creative space. It did not antagonize the leaders in technology (unless they happened to be decels), but it certainly wasn't trying to make friends with them. Now it's has completely sold out. It more and more resembles the cult of personality, conformity, and regulatory capture it was created to defy and parody.
