@@ -2,7 +2,7 @@
 
 The safetyists have been defeated. A more nefarious and competent enemy stands between us and a golden age of innovation. The innovators of yesterday have become the petty bereaucrats of today. They understand their new role well. Unable to innovate or compete, they have sought to gain advantage in the only way they know how, through enshrinement in politics. This process of regulatory capture.
 
-Lobbyists that met with the Biden administration behind closed doors to warn of the dangers of a technology they claimed would be used to "spread misinformation", "harm minorities", "replace jobs", and even "bring about the end of the world", that is, if anyone else were allowed to develop it, have adopted a new set of phrases. Most of them agreeable. Most of them co-opted from us. Do not be mislead by their lip service. Their prescription remains the same. To aquire eclusive, closed source, monopolies on the most powerful technology of our time.
+Lobbyists that met with the administration behind closed doors to warn of the dangers of a technology they claimed would be used to "spread misinformation", "harm minorities", "replace jobs", and even "bring about the end of the world", that is, if anyone else were allowed to develop it, have adopted a new set of phrases. Most of them agreeable. Most of them co-opted from us. Do not be mislead by their lip service. Their prescription remains the same. To aquire eclusive, closed source, monopolies on the most powerful technology of our time.
 
 ## The stakes are real now
 
